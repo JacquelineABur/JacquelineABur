@@ -28,6 +28,8 @@ I'm actively developing projects that combine neuroscience, programming, machine
 
 ## 😄A Little About Me
 - Former collegiate water polo athlete and National Champion.
+- I have done swimming and water polo for more than a decade each.
+- I am a black belt in martial arts, and have won numerous medals for different competitions.
 - Video game enthusiast: Genshin Impact, Wuthering Waves, Cyberpunk 2077, Devil May Cry, Castlevania, and more.
 - Fantasy reader: Currently reading The Will of the Many and The Black Company chronicles.
 - Former Rotary volunteer.
